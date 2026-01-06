@@ -10,7 +10,7 @@
 
 **会议链接**：腾讯会议 128-929-671
 
-![1](https://github.com/charryzzz/EnergeticParticlesAcademicSalon/blob/main/No.1%20%E5%90%AB%E8%83%BD%E9%A2%97%E7%B2%92%E7%87%83%E7%83%A7%E8%BF%87%E7%A8%8B%E7%9A%84%E6%95%B0%E5%80%BC%E6%A8%A1%E6%8B%9F%E7%A0%94%E7%A9%B6/No.1.jpg?raw=true)
+![1](https://github.com/charryzzz/EnergeticParticlesAcademicSalon/blob/main/No.2%20%E7%A1%BC%E7%9A%84%E7%95%8C%E9%9D%A2%E7%95%8C%E9%9D%A2%E5%8F%8D%E5%BA%94%E6%9C%BA%E7%90%86%E5%8F%8A%E5%85%B6%E5%BA%94%E7%94%A8%E7%A0%94%E7%A9%B6/No.2.jpg?raw=true)
 
 ---
 含能颗粒沙龙旨在为含能颗粒领域学者提供一个便捷、开放和轻松的交流平台，如您希望在沙龙上进行学术分享，或者有任何关于沙龙的建议和想法，请联系张家瑞 zhangjiarui@nudt.edu.cn
